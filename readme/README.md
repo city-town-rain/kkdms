@@ -1,2 +1,0 @@
-# kekedemos
-# kkdms
